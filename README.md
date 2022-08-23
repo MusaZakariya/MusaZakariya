@@ -11,7 +11,7 @@ Born in Kebumen, Center Java, October 29th 2003
 
 🧠 I'm currently learning about geophysics in Gadjah Mada University
 
-👯‍♀️ I'm looking for a support system like Gf or something like that but yeah 
+👯‍♀️ I'm looking for a support system like Gf or something like that but yeah I always end up on friend zone 
 
 📫 How to reach me : just DM me on instagram @_zakariyaaa
 
