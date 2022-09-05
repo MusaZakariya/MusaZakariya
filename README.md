@@ -17,7 +17,8 @@ Born in Kebumen, Center Java, October 29th 2003
 
 🎇 Fun fact : I can swim in many style XD
 
-![MemeMemesGIF](https://user-images.githubusercontent.com/90429800/188385557-513c3b89-5290-46f9-87cd-8f9f29c5298a.gif)
+![SushichaengSpongebobGIF](https://user-images.githubusercontent.com/90429800/188472765-28397894-49b6-4730-bc08-9f33910d6ad6.gif)
+
 
 
 
