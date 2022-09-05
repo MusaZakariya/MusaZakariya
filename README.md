@@ -17,7 +17,8 @@ Born in Kebumen, Center Java, October 29th 2003
 
 🎇 Fun fact : I can swim in many style XD
 
-![JihyoParkJihyoGIF](https://user-images.githubusercontent.com/90429800/188384718-c451731a-39fb-4ba2-99eb-975e4562e6d7.gif)
+![SusGIF](https://user-images.githubusercontent.com/90429800/188385126-343953f4-3f64-4167-ad78-d86e6b05cf26.gif)
+
 
 
 
