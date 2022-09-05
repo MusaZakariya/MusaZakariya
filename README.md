@@ -7,23 +7,24 @@ a combination of the names of the two prophets, namely Moses and Zakariya
 Born in Kebumen, Center Java, October 29th 2003 
 
 ## 
-👩‍💻 I'm interest in many things like creative industry, anime, and also traveling 
+💪 I'm interest in many things like creative industry, anime, outdorr activities and also traveling 
 
 🧠 I'm currently learning about geophysics in Gadjah Mada University
 
-👯‍♀️ I'm looking for a support system like Gf or something like that but yeah I always end up on friend zone 
+ಥ_ಥ I'm looking for a support system like girlfriend or something like that but yeah I always end up on friend zone 
 
-📫 How to reach me : just DM me on instagram @_zakariyaaa
+📨 How to reach me : just DM me on instagram @_zakariyaaa
 
-⚡️ Fun fact : I can swim in many style hehe :)))
+🎇 Fun fact : I can swim in many style XD
 
 
 ## 🔗 Links
 [![Instagram](https://www.instagram.com/_zakariyaaa)](https://Instagram.com/)
 [![linkedin](https://www.linkedin.com/in/musa-zakariya-89191623b)](https://www.linkedin.com/)
 
-and this is my favorit anime
-HUNTER X HUNTER hehe :)))
+Because im a whybooo (wibu) so this is my favorit animeh
+
+HUNTER X HUNTER 
 
 
 
