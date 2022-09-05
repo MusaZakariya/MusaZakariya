@@ -17,12 +17,15 @@ Born in Kebumen, Center Java, October 29th 2003
 
 🎇 Fun fact : I can swim in many style XD
 
+![JihyoParkJihyoGIF](https://user-images.githubusercontent.com/90429800/188384718-c451731a-39fb-4ba2-99eb-975e4562e6d7.gif)
+
+
 
 ## 🔗 Links
 [![Instagram](https://www.instagram.com/_zakariyaaa)](https://Instagram.com/)
 [![linkedin](https://www.linkedin.com/in/musa-zakariya-89191623b)](https://www.linkedin.com/)
 
-Because im a whybooo (wibu) so this is my favorit animeh
+Because im a whybooo (wibu) so this is my favorit animeh (～￣▽￣)～
 
 HUNTER X HUNTER 
 
